@@ -1,1 +1,1 @@
-lis351danielmangold.github.io 
+lisdanielmangold.github.io
